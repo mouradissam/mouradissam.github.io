@@ -1,1 +1,1 @@
-#Allah
+#Allaho Akbar
